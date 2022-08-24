@@ -1,0 +1,1 @@
+# payment.trendyol.com-
